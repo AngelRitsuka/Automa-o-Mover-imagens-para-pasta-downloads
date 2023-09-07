@@ -1,0 +1,1 @@
+# Automa-o-Mover-imagens-para-pasta-downloads
